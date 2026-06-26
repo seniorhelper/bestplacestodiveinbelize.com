@@ -1,0 +1,2 @@
+# bestplacestodiveinbelize.com
+bestplacestodiveinbelize.com
